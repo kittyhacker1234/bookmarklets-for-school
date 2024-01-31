@@ -1,7 +1,7 @@
 # bookmarklets-for-school
 a load of bookmarklets for school
-
-
+NONE OF THIS IS BY ME!
+I TOOK THESE FROM MY BOOKMARK BAR!
 copy code and add to a bookmark url name it whatever 
 
 
